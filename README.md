@@ -1,7 +1,7 @@
 ### Olá 👋
 
 - ⚡ Me chamo Átila Martins
-- 👨‍💻 Atualmente no quarto periodo de Ciencias da Computação
+- 👨‍💻 Atualmente no sétimo periodo de Ciencias da Computação
     
   ##
   
